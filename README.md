@@ -1,2 +1,2 @@
 # collaboration
-wir wollen zusammen arbeiten!
+wir wollen zusammen arbeiten...
